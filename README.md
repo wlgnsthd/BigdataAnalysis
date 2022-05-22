@@ -1,4 +1,5 @@
-![결과포스터_붉은색푸른색_1](https://user-images.githubusercontent.com/88171531/169684963-ef03efb7-9bcf-4af5-9d34-14856c815eb9.jpg)
+![결과포스터_붉은색푸른색_1](https://user-images.githubusercontent.com/88171531/169685381-fa0c53b0-1689-4d71-b9c1-8198aaa4d69b.jpg)
+
 ![12_1](https://user-images.githubusercontent.com/88171531/169684970-dfb435f9-4b41-47f4-8abb-270a78ca736e.jpg)
 ![12_2](https://user-images.githubusercontent.com/88171531/169684971-3cfdb2dc-8b79-4c36-88dd-e83e69aa656b.jpg)
 ![12_3](https://user-images.githubusercontent.com/88171531/169684973-9d805ecb-c756-4e8b-9cc9-52e341f75024.jpg)
